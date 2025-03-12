@@ -1,1 +1,1 @@
-Croquis LORA
+Croquis & Streetwear LORAs
